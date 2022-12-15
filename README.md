@@ -1,5 +1,3 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=hey i'm ahmedsaad;CTF+Newbie;Active+Learner/Researcher;Love+to+learn+new+stuffs)](https://git.io/typing-svg)
-
 
 <br>
 
